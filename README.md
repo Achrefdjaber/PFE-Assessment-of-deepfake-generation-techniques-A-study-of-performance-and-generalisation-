@@ -155,16 +155,6 @@ https://github.com/user-attachments/assets/bbfdeb3f-0533-4970-86a2-d9b3e9d53c99
 
 
 
-**DINet Video of presdent tebounne**
-
-
-
-
-https://github.com/user-attachments/assets/d3180b8c-5a44-43b4-bb51-4fa528c420e9
-
-
-
-
 
 
 
